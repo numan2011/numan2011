@@ -1,6 +1,6 @@
-Hi there, I’m Numan!
+Hi there,
 
-13 y/o developer with a passion for building cool stuff
+ im a developer with a passion for building cool stuff
 
 Welcome to my GitHub! I’m a self-taught developer who loves experimenting with web development, scripting, and full-stack projects. Even though I’m only 13, I’ve already spent a lot of time coding and learning new technologies, and I’m always working on something new!
 
