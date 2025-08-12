@@ -1,3 +1,5 @@
-{
-   I don't know what to put here....
-{
+class Shahsabsolozzzz {
+                        idk what this is helep me
+                        helep
+                        me
+}
