@@ -1,5 +1,1 @@
-class Shahsabsolozzzz {
-                        idk what this is helep me
-                        helep
-                        me
-}
+am I that worthless?
