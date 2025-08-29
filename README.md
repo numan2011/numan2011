@@ -1,1 +1,1 @@
-am I that worthless?
+damn bruh I locked in
